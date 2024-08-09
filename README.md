@@ -1,2 +1,4 @@
 # Malcolm19
-Olá pessoas 
+Olá pessoas 💟
+
+vamos estudar alura comigo 
